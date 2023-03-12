@@ -1,1 +1,1 @@
-# AppPublic
+# AppPublicプライバシーポリシー
